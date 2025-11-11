@@ -1,0 +1,1 @@
+# pockemonGO_js_web_2_bachynskyi_maksym
